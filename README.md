@@ -20,7 +20,7 @@
 10. Gustavo Vieira Dias - World Cup 🏆
 11. Helena Octaviano - Salve salaaaa 👍🏻
 12. Gustavo (TIRSU) - Boa, 👍✌️
-13. Nome - Seu Salve
+13. João Victor Pirans Columbari - Salve rapaziada Boa copa para todos
 14. Nome - Seu Salve
 15. kako - Salve Rei, tudo bem?
 16. Nome - Seu Salve

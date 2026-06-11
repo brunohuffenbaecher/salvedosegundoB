@@ -30,7 +30,7 @@
 20. Nome - Seu Salve
 21. Nome - Seu Salve
 22. Nome - Seu Salve
-23. Nome - Seu Salve
+23. Nathy - "Você só tem uma vida, ent viva ela!"
 24. Nome - Seu Salve
 25. Nome - Seu Salve
 26. Nome - Seu Salve

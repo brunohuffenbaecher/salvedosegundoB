@@ -13,9 +13,8 @@
 3. Bia Brito - (ﾉ◕ヮ◕)ﾉ*:･ﾟ✧ Salveee 
 4. Nome - Seu Salve
 5. Lara - Oii
-6. Nome - Seu Salve
+6. Bianca - Salve da Dona Rosa, melhor segundo ano! 
 7. Caio Da Bola ⚽ - Salve, rapaziada do Segundo B!👍 Tamo junto do início ao fim!😎 VAI SÃO PAULO!!! 🟥⬜⬛ (👍ﾟヮﾟ)👍
-7. Nome - Seu Salve
 8. Davi TM - Salve rapaziada e desculpas ao bruno e gersão.
 9. Terassi - Salve tropa
 10. Gustavo Vieira Dias - World Cup 🏆

@@ -4,7 +4,7 @@
 
 #### Bruno - [@brunohuffenbaecher](github.com/brunohuffenbaecher) - Um salve pro melhor segundo ano! :)
 
-#### Gersão -
+#### Gersão - Fiz meu primeiro fork - (github.com/honoriogerson)
 
 ## Alunos
 
